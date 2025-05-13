@@ -83,7 +83,7 @@ PAVITHRA PILLAPPA
 
 📧 pavithra2749@gmail.com
 
-🔗 www.linkedin.com/in/pavithra-pillappa-
+🔗 www.linkedin.com/in/pavithra-pillappa
 
 
 
